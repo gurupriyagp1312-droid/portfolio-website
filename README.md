@@ -50,6 +50,3 @@ Gurupriya M
 
 🐙 GitHub: https://github.com/gurupriyagp1312-droid
 
-⭐ If you found this project interesting, don't forget to Star ⭐ the repository and support my work!
-
-Made  by Gurupriya M
